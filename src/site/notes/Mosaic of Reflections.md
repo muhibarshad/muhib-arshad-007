@@ -3,10 +3,9 @@
 ---
 
 
-# A Journey Within
+# Mosaic of Reflections: A Journey Within
 
 ## "A short novel that you may consider reading while traveling on a train through vast fields."
-
 
 
 started at 10:40 PM , 16Th July, 2023.
