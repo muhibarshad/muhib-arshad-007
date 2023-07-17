@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/how-it-all-began/","tags":["gardenEntry"]}
+{"dg-publish":true,"permalink":"/how-it-all-began/"}
 ---
 
 
