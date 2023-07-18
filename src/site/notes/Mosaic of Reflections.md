@@ -22,7 +22,7 @@ Reading Time take : 35 minutes approx.
 
 >***If reading this bores or frustrates you, I kindly request that you consider it a marked assignment and still read it. Additionally, everyone has the right to express their point of view.***
 
-*==Note: To navigate to the next chapter, simply click on the chapter's title at the end of each page. Alternatively, you can use the Local and Global graphs to jump to any page. For mobile view, it is recommended to use the links provided for the chapter titles, and for desktop view, utilize the graph for seamless navigation.==*
+*Note: To navigate to the next chapter, simply click on the chapter's title at the end of each page. Alternatively, you can use the Local and Global graphs to jump to any page. For mobile view, it is recommended to use the links provided for the chapter titles, and for desktop view, utilize the graph for seamless navigation.*
   
 [[In the world of animations, Its important to feel and visualize you reason of writing this ?\|In the world of animations, Its important to feel and visualize you reason of writing this ?]]
 
