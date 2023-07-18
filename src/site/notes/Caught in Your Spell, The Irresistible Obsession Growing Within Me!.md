@@ -2,7 +2,8 @@
 {"dg-publish":true,"permalink":"/caught-in-your-spell-the-irresistible-obsession-growing-within-me/","noteIcon":""}
 ---
 
-# Caught in Your Spell: The Irresistible Obsession Growing Within Me!
+# Caught in Your Spell
+## The Irresistible Obsession Growing Within Me!
 
 *From the very first day, I made the decision to always communicate with you in person because sometimes messages can't accurately convey what we truly mean, leading to confusion. It's only when we experience things in reality that we realize they're not what we expected.*
 
@@ -29,7 +30,11 @@ In our messages, I always expressed the sentiment,
 
 *"If I'm going wrong, please let me know,"*
 
+![d.jpg](/img/user/d.jpg)
+
+
 Because I genuinely wanted to understand your thoughts about me. Regarding your "***Mehmood Darwiash***" status, I didn't see it right away because I was out with my friends on a picnic at the lake that day, and I enjoyed myself a lot. I only checked my phone at night and came across your status then. I felt as though you ignored me, but in reality, I didn't ignore you. Later that night, I put up a status hoping that you would realize I was with my friends. However, even after 24 hours and the following week, you didn't see any of my statuses. At that point, I thought you were seeking revenge, but I chose to ignore and accept it.
 
 >*I've always wanted to hear your voice, but I refrained from explicitly mentioning it because I didn't want to come across as too forward or cringe-worthy. So instead, I simply told you that your voice is really good and that I like it.*
 
+But , [[Awakening the Senses, How a Single Moment Realized and Opened My Eyes!\|Awakening the Senses, How a Single Moment Realized and Opened My Eyes!]]
