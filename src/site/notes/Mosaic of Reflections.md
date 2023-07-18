@@ -1,14 +1,21 @@
 ---
-{"dg-publish":true,"permalink":"/mosaic-of-reflections/","tags":["gardenEntry"]}
+{"dg-publish":true,"permalink":"/mosaic-of-reflections/","tags":["gardenEntry"],"noteIcon":""}
 ---
 
 
-# Mosaic of Reflections: A Journey Within
+# Mosaic of Reflections
+# A Journey Within
 
-## "A short novel that you may consider reading while traveling on a train through vast fields."
+
+![c.png](/img/user/c.png)
 
 
-started at 10:40 PM , 16Th July, 2023.
+## In the depths of self-discovery, the shattered pieces of a soul find solace in the mosaic of reflections.
+
+
+Started at 10:40 PM , 16Th July, 2023.
+
+>For an immersive experience, seek solace in a tranquil setting beneath the starry sky, where the serene melodies of lofi music harmonize with your captivating journey. To truly embrace the author's intended ambiance, I recommend listening to this playlist [Okay](https://open.spotify.com/playlist/43R2AwZ90xGMq8CmrWCE6I?si=e32a8cf1de834778) while indulging in the read.
   
 **Firstly**, I didn't know how to write all of these in English because I am not proficient in the language, but I will do my best to express myself. Additionally, English is not well-suited for conveying emotions effectively.
 
