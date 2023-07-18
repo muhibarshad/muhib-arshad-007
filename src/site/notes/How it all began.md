@@ -20,8 +20,7 @@ During the third semester, everything seemed to be going well until a significan
 
 As for my studies, I had been blessed with a good memory. In previous semesters, I would only study the day before exams and managed to achieve a CGPA of 3.5 in two semesters. However, in the third semester, I only studied for two hours before the exam in the morning, and as a result, my GPA dropped to 2.9. But let's move on from that.
 
-Now move to the next chapter of why I message you ? [[Unmask the Mystery, Unlock the Truth of Messaging You!\|Unmask the Mystery, Unlock the Truth of Messaging You!]]
-
+Now move to the next chapter of why I message you ? [[Unmask the Mystery, Unlock the Truth of Messaging You!\|Unmask the Mystery, Unlock the Truth of Messaging You!]].
 
 
 
