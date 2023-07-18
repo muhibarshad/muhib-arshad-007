@@ -7,7 +7,7 @@
 # A Journey Within
 
 
-![d.jpg](/img/user/d.jpg)
+![f.jpg](/img/user/f.jpg)
 
 
 ## In the depths of self-discovery, the shattered pieces of a soul find solace in the mosaic of reflections.
