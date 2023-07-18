@@ -20,7 +20,8 @@ I believe it's sufficient to express myself in writing. Initially, I thought abo
 
 While it may seem like a common occurrence, please refrain from comparing me to other boys who are materialistic, simply engaging in shallow conversations and fleeting relationships. I am serious and straightforward, and I don't judge you based on your appearance or beauty. You might perceive me as constantly defending myself, but that's because our society has influenced our minds and shaped our thoughts in undesirable ways. Sometimes, I find myself questioning whether genuine and pure love still exists in this world, as everything seems to have become materialistic. I have even written a blog post on this topic, which you can read [here](https://medium.com/@muhibarshad101/friend-that-girl-is-so-beautiful-i-wish-she-could-be-my-spouse-83768b4c85dc).
 
->*I sincerely apologize for taking up your time, and I am truly grateful that you have read through all of this. I also hope that your response will help me move forward on one side of the river and not linger on the edge.*
+>*I sincerely apologize for taking up your time, and I am truly grateful that you have read through all of this. I also hope that your response will help me move forward on one side of the river and not linger on the edge, hope you will reply to this, I will wait for your response.
 
+Completed at : 7:56 PM , 18th July, 2023.
 
 [[Mosaic of Reflections\|Mosaic of Reflections]].
