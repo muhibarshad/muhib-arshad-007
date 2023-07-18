@@ -4,6 +4,8 @@
 
 # In the world of animations, it's important to feel and visualize the reason behind writing?
 
+![h.jpg](/img/user/h.jpg)
+
 
 **Firstly**, I didn't know how to write all of these in English because I am not proficient in the language, but I will do my best to express myself. Additionally, English is not well-suited for conveying emotions effectively.
 
