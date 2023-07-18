@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/why-people-called-me-007/"}
+{"dg-publish":true,"permalink":"/why-people-called-me-007/","noteIcon":""}
 ---
 
 
